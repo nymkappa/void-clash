@@ -1,1 +1,0 @@
-![kappa.png](https://bitbucket.org/repo/7rABkr/images/4122796787-kappa.png)
